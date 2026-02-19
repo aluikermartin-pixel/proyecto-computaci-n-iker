@@ -1,1 +1,1 @@
-# proyecto-computaci-n-iker
+# proyecto-computacion-iker
